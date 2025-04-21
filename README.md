@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @systemcreator1
 - 👀 I’m interested in programming, music, engineering, maths, science
 - 🌱 I’m currently learning programming, math, science
+- I am currently 14 years old
