@@ -2,5 +2,4 @@
 - 👀 I’m interested in programming, music, engineering, maths, science
 - 🌱 I’m currently learning programming, math, science
 - I am currently 14 years old
-- - If anyone wants to talk or needs help you are free to talk to me at ananthkarthik397@gmail.com
 - Like to work with electronics and engineering and maths and science
